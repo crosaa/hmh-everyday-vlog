@@ -12,5 +12,5 @@ hmh with his stick in the hand preparing to stick it into his asshole.
 ------
 
 2035-3-22
-![](./pic/picIMG_20250322_104811.jpg)
+![](./pic/IMG_20250322_104811.jpg)
 hmh wake up with his "plane" hair , stupid!!!
